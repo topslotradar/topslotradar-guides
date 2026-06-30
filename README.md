@@ -1,2 +1,185 @@
-# topslotradar-guides
-Гайды Top Slot Radar о слотах, RTP, волатильности, RNG, Ante Bet и механиках игровых автоматов
+
+# Top Slot Radar Guides
+
+**Top Slot Radar** — это информационный проект о слотах, игровых механиках, RTP, волатильности, RNG, бонусных функциях и провайдерах онлайн-казино.
+
+Мы простыми словами объясняем, как работают современные игровые автоматы, чем отличаются популярные слоты и на какие параметры стоит обращать внимание перед игрой.
+
+## Гайды по механикам слотов
+
+- [Что такое RTP в слотах](https://topslotradar.com/ru/guides/maximum-rtp-strategy/)
+- [Что такое волатильность в слотах](https://topslotradar.com/ru/guides/volatile-slots-guide/)
+- [Что такое Ante Bet](https://topslotradar.com/ru/guides/chto-takoe-ante-bet/)
+
+## Обзоры популярных слотов
+
+- [Sweet Bonanza — обзор слота](https://topslotradar.com/ru/slots/sweet-bonanza/)
+- [Gates of Olympus — обзор слота](https://topslotradar.com/ru/slots/gates-of-olympus/)
+
+## Провайдеры слотов
+
+- [Провайдеры слотов — обзор разработчиков] (https://topslotradar.com/ru/providers/)
+
+## О проекте
+
+Top Slot Radar публикует образовательные материалы о слотах, RTP, волатильности, бонусных механиках, демо-режимах и разработчиках игровых автоматов.
+
+Сайт проекта: https://topslotradar.com/ru/
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
